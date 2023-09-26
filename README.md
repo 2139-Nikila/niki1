@@ -1,5 +1,1 @@
-# niki1enjrgkrjwjf
-fmebejgtkuwehgjebgn
-fnbrfwkjqku3grehfnbfnmbnv
-snfbsnhuwrhfb \
-djfjdhgkusei
+# niki1
